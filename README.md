@@ -1,3 +1,3 @@
-Juan Miguel Sanchez
-BSIT
-ewan? ewan
+Juan Miguel Sanchez  
+BSIT  
+ewan? ewan  
